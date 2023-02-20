@@ -1,1 +1,0 @@
-# johanesmanullang.github.io
